@@ -17,7 +17,7 @@
 
 Use the link below to get an immediate 10% discount when signing up for MiniMax Coding Plan:
 
-👉 **https://platform.minimax.io/subscribe/coding-plan?code=EljrpDLxkH&source=link**
+👉 **https://platform.minimaxi.com/subscribe/coding-plan?code=5vYefXlYwS&source=link**
 
 > 💡 **Why MiniMax?** Google Antigravity Claude quotas have been heavily throttled. MiniMax offers nearly identical quality at a lower cost with faster response times!
 
